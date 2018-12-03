@@ -1,0 +1,2 @@
+# Planejamento_e_Organizacao_de_Trabalho_de_Conclusao_de_Curso
+Disciplina do terceiro ano do curso técnico em Informática
